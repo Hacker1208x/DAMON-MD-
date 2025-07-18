@@ -8,8 +8,6 @@
 
 <h1 align="center">𝐃𝐀𝐌𝐎𝐍-𝐌𝐃</h1>
 
-                🎭 WHATSAPP BOT BY HACKER1208 🎭
-
 
 
 <p align="center">
